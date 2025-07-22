@@ -1,2 +1,2 @@
 # Día 1: Explorando el bosque 
-Me pierdo entre los árboles 🌳, respiro el aire fresco y puro 🌬️, escucho el canto de los pájaros 🐦 y **busco senderos escondidos para explorar **🚶‍♀️. ¡Es mi lugar favorito para conectar con la naturaleza y recargar energías! ✨
+Me pierdo entre los árboles 🌳, respiro el aire fresco y puro 🌬️, escucho el canto de los pájaros 🐦 y **busco senderos escondidos para explorar**🚶‍♀️. ¡Es mi lugar favorito para conectar con la naturaleza y recargar energías! ✨
