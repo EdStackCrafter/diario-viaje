@@ -1,2 +1,2 @@
-# Día 3 Caminata por la ciudad
-Camino por sus calles bulliciosas, observo la arquitectura, descubro tiendas y cafés únicos, y me sumerjo en el ritmo vibrante de la vida urbana. Es el lugar perfecto para explorar y sentir la energía de la metrópolis.
+# Día 3: Caminata por la ciudad
+Me encanta caminar por sus calles 🚶‍♀️, descubrir cafés acogedores ☕️ y tiendas únicas 🛍️. Siento la energía vibrante de la gente y los sonidos urbanos que la hacen tan viva 🏙️. ¡Es emocionante ver cómo se desarrolla la vida a mi alrededor! ✨
