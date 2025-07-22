@@ -1,2 +1,2 @@
-## Día 4 Frío en la nieve
-Me deslizo montaña abajo en esquís o tabla, siento el frío viento en mi rostro mientras construyo un muñeco de nieve, y disfruto del silencio blanco y la belleza helada que me rodea. Es el lugar perfecto para sentir la adrenalina y la magia del invierno.
+# Día 4: Frío en la nieve
+Me deslizo montaña abajo en esquís, siento el frío viento en mi rostro mientras construyo un muñeco de nieve, y disfruto del silencio blanco y la belleza helada que me rodea. Es el lugar perfecto para sentir la adrenalina y la magia del invierno.
