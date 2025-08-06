@@ -13,3 +13,6 @@ Este repositorio contiene un mini diario en Markdown de un viaje imaginario.
 2. Crear o editar un post
 3. `git add`, `git commit`, `git push`
 4. Usar ramas y Pull Requests para cambios
+
+
+AGREGO UN CAMBIO DESDE EDITOR DEV EN GITHUB
